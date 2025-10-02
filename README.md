@@ -1,0 +1,1 @@
+# Jahon-aholisi-statistikasi-va-demografik-prognozlar
